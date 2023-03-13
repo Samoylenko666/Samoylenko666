@@ -1,4 +1,4 @@
-![image](https://github.com/Samoylenko666/Samoylenko666/blob/main/top.gif)
+# 404 Error
  
 <!--  <br>🧭🧭🧭Welcome to my profile on Github🧭🧭🧭 
 
